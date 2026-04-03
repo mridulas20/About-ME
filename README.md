@@ -39,8 +39,8 @@
 
 ## 🌐 Connect With Me
 
-* 💼 LinkedIn: YOUR_LINK
-* 📧 Email: YOUR_EMAIL
+* 💼 LinkedIn: mridula s
+* 📧 Email: mridulas.aids2024@citchennai.net
 
 ---
 
